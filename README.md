@@ -1,8 +1,1 @@
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Wisconsin/blob/master/CCTV-13-0008--2.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Wisconsin/blob/master/CCTV-13-0020--2.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Wisconsin/blob/master/CCTV-40-0019--1.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Wisconsin/blob/master/CCTV-40-0034--1.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Wisconsin/blob/master/CCTV-40-0083--1.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Wisconsin/blob/master/CCTV-53-0034--2.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Wisconsin/blob/master/mdm0pgaopg3--1.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Wisconsin/blob/master/zluenhxg1dk--1.jpg)
+
